@@ -10,13 +10,13 @@
     <img width="100" src="https://64.media.tumblr.com/ccb299c91b9d24e12d3d6531d6cb93ab/a15b245ee466c34c-58/s1280x1920/0ab1e0534fa169657e81340ba1a356d4e778620a.pnj" alt="yoru">
 </p>
 <p align="center">
-<sub>dnc ◞ dont take isnpo</sub>
+<sub>HD & ADHD</sub>
 </p>
 <p align="center">
-<sub>dni; homestuck, them weird bllk fans, dsmp, hh/hb, zosan shippers</sub>
+<sub>be patient wit me‚ thx</sub>
 </p>
 <p align="center">
-<sub>⠀⌣ ask 2 add ‧₊˚</sub>
+<sub>⁺ op ┄ bleach ┄ bllk ┄ opm‧₊˚</sub>
 </p>
 <p align="center">
     <img width="200" src="https://64.media.tumblr.com/48f27263b8d252b1ea57aa17166ff9cf/a15b245ee466c34c-8c/s1280x1920/1e9b625365858e9443c34d3be9071f128ba1818f.pnj" alt="yoru">
