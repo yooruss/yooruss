@@ -10,7 +10,7 @@
     <img width="100" src="https://64.media.tumblr.com/ccb299c91b9d24e12d3d6531d6cb93ab/a15b245ee466c34c-58/s1280x1920/0ab1e0534fa169657e81340ba1a356d4e778620a.pnj" alt="yoru">
 </p>
 <p align="center">
-<sub>HD & ADHD</sub>
+<sub>HD﹑ ADHD﹑ BPD</sub>
 </p>
 <p align="center">
 <sub>be patient wit me‚ thx</sub>
